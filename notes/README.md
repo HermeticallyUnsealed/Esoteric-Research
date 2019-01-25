@@ -38,8 +38,7 @@ Quantification by Scott Onstott
 Taking Measure: Explorations in Number, Architecture, and Conciousness by Scott Onstott
 
 ## References
-
-* "magic and mystery in tibet" by Alexandra David Neal
+* magic and mystery in tibet by Alexandra David Neal 
 * The Tao Of Physics 
 * Adventures beyond the body
 * Entangled Minds: Extrasensory Experiences in a Quantum Reality - Dean Radin
