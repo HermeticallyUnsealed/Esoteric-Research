@@ -37,8 +37,20 @@ Quantification by Scott Onstott
 
 Taking Measure: Explorations in Number, Architecture, and Conciousness by Scott Onstott
 
+## References
 
-### READ:
+* "magic and mystery in tibet" by Alexandra David Neal
+* The Tao Of Physics 
+* Adventures beyond the body
+* Entangled Minds: Extrasensory Experiences in a Quantum Reality - Dean Radin
+* The Physics of Consciousness: The Quantum Mind and the Meaning of Life
+* Evan Harris Walker, Author
+* Symbols of Sacred Science - Rene Guenon
+* Symbol & Archetype: A Study of the Meaning of Existence (Quinta Essentia series) Paperback – April 1, 2006 by Martin Lings
+
+Titus Burckhardt,  F. Schuon
+
+## Reading list:
 - Math for Mystics by Renna Shesso
 - Gods Secret Formula by Peter Plichta
 - The Lost Science of Measuring the Earth by Robin Heath and John Michell
@@ -63,13 +75,6 @@ Pythagorus
 
 paused 6:14 16/23
 
-The Power of Symbols
-
-Psychology
-
-Physics
-
-Occult
 
 ## Examples and explanation in:
 * Spiritual Traditions
@@ -77,3 +82,4 @@ Occult
 * Architecture
 	
 Summary
+
