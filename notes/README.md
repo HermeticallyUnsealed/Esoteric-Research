@@ -46,9 +46,7 @@ Taking Measure: Explorations in Number, Architecture, and Conciousness by Scott 
 * The Physics of Consciousness: The Quantum Mind and the Meaning of Life
 * Evan Harris Walker, Author
 * Symbols of Sacred Science - Rene Guenon
-* Symbol & Archetype: A Study of the Meaning of Existence (Quinta Essentia series) Paperback – April 1, 2006 by Martin Lings
-
-Titus Burckhardt,  F. Schuon
+* Symbol & Archetype: A Study of the Meaning of Existence (Quinta Essentia series) Paperback – April 1, 2006 by Martin Lings Titus Burckhardt,  F. Schuon
 
 ## Reading list:
 - Math for Mystics by Renna Shesso
