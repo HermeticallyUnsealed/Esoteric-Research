@@ -1,6 +1,16 @@
-# Outline
+# Esoteric Research
 
-Someday I might turn this into a book.
+## The idea:
+
+Symbols are alive in the collective consciousness(also known as the etheric plane or akasha).  We are attracted to and are affected by them whether we are aware of it or not.  A symbol can connect us to a type of energy not conventionally acknowledged or accepted.  
+
+Even though materialism has dominated society at large, sacred symbol scatters our landscape and most people don’t even notice it or couldn’t explains what it means if you asked.  Others are often of a particular religion that refuses to accept any spiritual ideas but the ones they were taught as children.  Architects have encoded numbers and fractions that relate to the proportions of the universe. It’s encoded in our calendars, in our system of time, our units of measurement, the musical scale.  Our government has made much use of sacred symbol. Corporations use it for their logos and their names.  Advertisers, use it, musicians you know and love use it, artists use it.  In fact, sacred symbol pervades the very fabric of human culture.
+
+I presume to provide an explanation of what “esoteric philosophy” says about how symbols works in the ‘etheric’.  What I mean by etheric is a part of the physical which we can not see, that comprises everyone’s individual minds, in addition to a collective mind\space we all have access to and are a part of.
+
+I’d also like to put forth how all of this relates to our most current scientific understanding of the universe.  There is a growing connection between science and ancient spiritual philosophy.
+
+To summarize, my idea is for a book that shows a wide array of sacred symbol in our every day lives, and offer an explination of the sacred principle behind them.  I also want relate how science is incresingly harmonising with “hermetic philosophy”.
 
 ## Part 1
 * Evidence
